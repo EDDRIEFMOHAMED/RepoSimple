@@ -1,0 +1,1 @@
+un exercice pour conférmer les notion que j'ai assimilé dans le cours.
